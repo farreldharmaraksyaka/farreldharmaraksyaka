@@ -29,6 +29,6 @@ Di luar akademik, saya senang:
 ---
 
 ## 🤩 Reach me out!
-![LinkedIn](https://linkedin.com/in/farrel-dharma-raksyaka)
-![Instagram](https://instagram.com/farrelddd)
-![Email](farreldharmaraksyaka2006@mail.ugm.ac.id)  
+- [LinkedIn](https://linkedin.com/in/farrel-dharma-raksyaka)
+- [Instagram](https://instagram.com/farrelddd)
+- [Email](farreldharmaraksyaka2006@mail.ugm.ac.id)  
